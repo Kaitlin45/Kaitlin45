@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kaitlin45.
+- 👀 I’m interested in cooking.
+- 🌱 I’m currently learning food tech.
+- 💞️ I’m looking to collaborate on food.
+- 📫 How to reach me email.
+- 😄 Pronouns: she/her.
+- ⚡ Fun fact: i live in England!!
